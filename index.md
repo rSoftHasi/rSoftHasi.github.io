@@ -16,7 +16,10 @@ Then drop on the deck and flop like a fish!
 Spongebob on the concept of FUN:
 
 > F is for friends who do stuff together
+
 > U is for you and me
+
 > N is for anywhere and anytime at all
+
 
 <img scr="https://www.foerde.news/files/news-bilder/Spongebob/3-spongebob-squarepants-hr.jpg"/>
